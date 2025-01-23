@@ -1,0 +1,1 @@
+# HakuNeko-Manga-CBZ-Batcher
